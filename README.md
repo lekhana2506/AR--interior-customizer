@@ -11,5 +11,5 @@ https://www.dropbox.com/s/zr9jvl301tac7yn/living_final.apk?&raw=1
 painting-walls-apk
 https://www.dropbox.com/scl/fi/uppik0d5z0j89fy5arkap/paintwalls.apk?rlkey=1brjuipp22mto7tni2f607c7q&raw=1
 
-Can images in respectives images for a particualr apk to a glimpse of customization experience
+Scan images in respectives images for a particualr apk to a glimpse of customization experience
 
